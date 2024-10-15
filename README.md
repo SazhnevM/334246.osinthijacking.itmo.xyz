@@ -1,1 +1,1 @@
-# 334246.osinthijacking.itmo.xyz
+# 334246
